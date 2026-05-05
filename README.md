@@ -7,3 +7,6 @@ je suis un golmnon
 nous sommes des  golmons et le vie est merdique 
 
 very goog kjk
+
+je suis dans  la joie 
+une joie immense 
